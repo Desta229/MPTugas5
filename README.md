@@ -28,3 +28,4 @@ Author
 
 Nama: Desta Putra Nur fauzan
 
+<img width="1080" height="2400" alt="Screenshot_20260326_184746" src="https://github.com/user-attachments/assets/460145ed-cbd2-41f8-b59e-33cdee0d45a2" />
